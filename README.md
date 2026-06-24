@@ -1,4 +1,4 @@
-Hi, I'm Janardhan Kolagatla, a passionate Artificial Intelligence student with a strong interest in Blockchain projects. I'm currently in my third year of B.Tech.
+Hi, I'm Janardhan reddy Kolagatla, a passionate Artificial Intelligence student with a strong interest in Blockchain projects. I'm currently in my third year of B.Tech.
 I'm also a proud member of a startup company called VirtuVerse, where we're working on cutting-edge solutions in AI and blockchain.
 I'm actively looking for freelancing opportunities, so feel free to reach out if you need expertise in AI, blockchain, or other tech domains.
 
